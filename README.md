@@ -2,6 +2,7 @@
 <br/>
 <br/>
 <br/>
+<br/>
   💭 . . <i> all rights reserved ! </i> </b> <br>
 • my focalors, sigewinne, and lynette skins are inspired by @littledollyboo1 on ig :>> <br>
 don't copy my skins; if you want inspo, please ask ! <br>
