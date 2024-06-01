@@ -11,4 +11,6 @@ don't copy my skins; if you want inspo, please ask ! <br>
 • i am most likely using one of my favorite skins if github is my shown social :> <br>
   ♡ miyu my ultra mega amazing pookie bear !! 
 <br/>
-<p align="center"> <a href="https://www.tumblr.com/puresel"> graphic creds ! </a> </p>
+<p align="center"> <a href="https://rentry.org/binus"> ★ rentry <br/>
+  <a href="https://www.tumblr.com/puresel"> graphic creds ! </a> 
+</p>
