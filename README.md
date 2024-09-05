@@ -6,8 +6,7 @@ don't copy my skins; if you want <br/>
 inspo, please ask ! <br>
   <br>
  🦢 . . <b> <i> notes ! </i> </b> <br>
-• you may see me @ market <br/> 
-or dw spot :> <br/>
+• you may see me @ market or dw spot <br/>
   ♡ miyu my ultra mega amazing pookie bear !! 
 <br/>
 <p align="center"> <a href="https://rentry.org/binoo"> ★ rentry <br/>
