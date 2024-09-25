@@ -8,7 +8,7 @@ inspo, please ask ! <br>
 • you may see me @ market or dw spot <br/>
   ♡ miyu my ultra mega amazing pookie bear !! 
 <br/>
-<p align="center"> ★ <a href="https://rentry.org/binoo"> 01. </a> + <a href="https://crgn.cc/venera"> 02. </a> <br/>
+<p align="center"> ★ <a href="https://rentry.org/binoo"> 01. </a> + <a href="https://vienera.straw.page/"> 02. </a> <br/>
   <a href="https://lovekiyo.atabook.org"> atabook ! <br/>
   <a href="https://www.tumblr.com/honeystarcamper"> graphic creds ! </a> 
 </p>
